@@ -1,2 +1,2 @@
 # Belejar
-Belajar aja dulu
+Belajar aja dulu jangan malas
